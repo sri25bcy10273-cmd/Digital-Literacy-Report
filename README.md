@@ -7,3 +7,6 @@ Collaboration Without Learning – A group assignment completed efficiently usin
 Professional Communication – Arjun's poorly written email to a faculty member illustrates how informal digital habits bleed into professional spaces, affecting first impressions.
 Cyber Crime Awareness vs. Behavior – Despite knowing about phishing, Arjun falls for a scam, demonstrating that awareness alone does not guarantee safe behavior.
 The Deeper Problem – A synthesis arguing that true digital literacy is measured not by 
+
+Task3 - Platforms 
+Google Forms Link - **https://docs.google.com/forms/d/e/1FAIpQLSc1iVV_8jGTZKDeum6_BzKkhuOq6zXdjvHyxlnNjjIB6-RKTA/viewform?usp=publish-editor**
